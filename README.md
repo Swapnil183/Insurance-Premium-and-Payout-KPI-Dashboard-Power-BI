@@ -90,6 +90,6 @@ If you have any questions or feedback, feel free to connect:
 
 Name: Swapnil Jadhav
 
-GitHub: https://github.com/swapmil83
+GitHub: https://github.com/swapnil83
 
 LinkedIn: https://wwww.linkdin.com/in/swapniljadhav18
